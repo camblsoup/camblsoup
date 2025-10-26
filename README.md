@@ -33,3 +33,5 @@ Other than that in my free time I enjoy:
 - Video Games 🎮
 
 Feel free to contact me at: [cameronkmclagan@gmail.com](mailto:cameronkmclagan@gmail.com) 📫
+
+For more information on me please check out my [personal website](https://camblsoup.github.io/portfolio/)
